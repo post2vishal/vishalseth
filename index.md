@@ -167,6 +167,22 @@ Looking ahead, I envision a world where technology democratizes access to knowle
 I'm always open to collaborations—let's build the future together!
 
 ---
+**About Seth Anant from Amazon Author Profile:**
+
+Seth Anant
+
+A soul who’s stared into the void and laughed. Seth Anant isn’t some stuffy guru in a robe or a hashtag-happy influencer peddling watered-down wisdom. He’s a warrior—battle-scarred, unapologetic, and radiating a kind of fearless energy that makes you want to stand taller. Born from the ashes of a world obsessed with control, Seth walked away from the scripts society handed him—religion, dogma, fear—and forged his own path. He’s the kind of person who’d rather wrestle with the big questions than settle for easy answers, and he’s inviting you to do the same.
+
+Seth’s story isn’t tied to one place or one belief system. He’s a global soul, pulling threads from ancient mysticism, quantum vibes, and the raw pulse of human experience. Think of him as a cosmic DJ, remixing spirituality for a generation that’s done with rigid rules but starving for meaning. He’s fought his own demons—doubt, despair, the weight of a world gone wild—and come out the other side with a fire that burns for truth. That’s what makes him a warrior of Light: not some holier-than-thou savior, but a real one who’s been in the trenches and knows the stakes.
+
+For Gen Z, Seth is the anti-hero you’ve been waiting for. He’s not here to tell you what to believe—he’s here to hand you the tools to figure it out yourself. No dogma, no guilt trips, just pure, unfiltered light. And in a world where you’re bombarded with filters, fakes, and fleeting trends, that authenticity hits different.
+
+The author, Seth Anant is a person who touched life from every corner. Involved and experienced the highs and lows in the flow being a meditator. He is a nameless entity called by many names by people. He found his freedom with meditation and intense vairagya or detachment. He noticed that everything has its own importance in life and one should choose his way and his resources. Existence is made for so many kinds of people and not all ways are ours, we need to find our own way with the methods and resources for a perfect life. This perfection can only be defined by you not by others. And the author represented his views in such a manner that covers science and ancient arts towards perfection.
+
+The author himself is from an Engineering background and worked for a long time in the IT sector. Since high school his interest has developed in understanding consciousness and meditation & yoga. He learnt so many aspects of life by reading, practising and learning from experienced masters. He used to say everyone has something to teach you but general people knowledge is not in order but masters are ordered and practical.
+
+He believes life is good with resources and one can generate it through its creativity. On the other hand life is quite well by using on demand resources, which is the future of our earth and new humanity. In Ancient times they were used to this and called it Aparigraha in some sense, but today only resource acquisition has become the goal of humanity. Some handful of powerful persons have ownership on major resources. Rest of the people are just crawling for their survival and this is not what we should achieve collectively. If we could learn something at least 5% through the efforts of the author about our mechanism and our mastery, we would be a free bird with music coming from the self centre. And this is perfection, becoming a Paramahansa.
+
 
 ## Contact & Connect
 - **GitHub:** [post2vishal](https://github.com/post2vishal) | [PrakritiTV](https://github.com/PrakritiTV)  
