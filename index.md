@@ -32,7 +32,7 @@
 - **Email**: post2vishal@gmail.com  
 - **WhatsApp**: [+91 7838351616](https://wa.me/917838351616)  
 - **X**: [@PrakritiTV](https://x.com/PrakritiTV)  
-- **LinkedIn**: [Vishal Seth](https://linkedin.com/in/vishalseth)  
+- **LinkedIn**: [Vishal Seth](https://linkedin.com/in/post2vishal)  
 
 ---
 
