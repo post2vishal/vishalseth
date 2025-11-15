@@ -42,7 +42,7 @@
 # Vishal Seth - Personal Profile & Portfolio
 
 <div align="center">
-  <img src="https://via.placeholder.com/300x300?text=Vishal+Seth+ORCID" alt="Profile Image">
+  <img src="[https://via.placeholder.com/300x300?text=Vishal+Seth+ORCID](https://github.com/post2vishal/vishalseth/blob/main/Vishal%20Seth%20Linkedin.jpg)" >
   <h1>Vishal Seth</h1>
   <p><strong>AI-Powered Data-Driven Digital Marketing Professional</strong> | Ethical Researcher | Open Source Advocate | Founder, LoveTech India</p>
   <p>
