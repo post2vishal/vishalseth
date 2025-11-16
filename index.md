@@ -1,4 +1,4 @@
-# Vishal Seth — AI | Blockchain | Ethical Tech
+# Vishal Seth — AI | Blockchain | Ethical Tech (Profile Under Construction 🚧)
 
 **SVNIT ChemEng | Google Ads Certified | Founder @ LoveTech India**
 
